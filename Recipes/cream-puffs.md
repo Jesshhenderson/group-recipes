@@ -1,0 +1,22 @@
+# Cream Puffs
+
+_1hr 17minutes_
+
+## Ingredients
+
+- 1 cup water
+- 115g butter
+- 128g sifted all-purpose flour
+- 1/4 teaspoon salt
+- 4 eggs
+- 1 pint heavy cream
+- 1 tablespoon white sugar
+- 1/2 teaspoon vanilla extract
+- 1/2 cup semisweet chocolate chips
+
+## Method
+
+1. Preheat oven to 230 degrees C.
+2. In medium saucepan, bring water to a boil. Add butter and stir as it melts, then return to a boil. Add flour and salt all at once and stir vigorously until mixture forms a ball. Remove from heat and add eggs, one at a time, stirring vigorously after each until smooth. Drop by heaping tablespoons, 3 inches apart, on a cookie sheet.
+3. Bake 15 minutes in the preheated oven then reduce heat to 165 degrees C and bake 25 minutes more. Remove puffs from oven, split and remove soft dough from center. Turn oven off, and replace puffs to dry in cooling oven, 20 minutes more. Cool completely on wire rack.
+4. In medium bowl, whip cream with electric mixer until stiff peaks form. Stir in vanilla and sugar. Fill puffs with whipped cream. Melt chocolate chips in microwave or slowly over low heat. Drizzle melted chocolate over tops of cream puffs. Serve immediately.
